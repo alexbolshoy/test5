@@ -2,7 +2,7 @@
 * i from Ekaterinburg
 * i love hiking
 
-[Ссылка](ya.ru)
+[Ссылка](https://ya.ru/)
 
 ## Горы
 
